@@ -1,4 +1,4 @@
-![Gif](https://s2.gifyu.com/images/Tipsy.gif)
+![Gif](https://s2.gifyu.com/images/Resize.gif)
 
 ## Tipsy
 
